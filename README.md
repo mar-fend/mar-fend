@@ -1,1 +1,1 @@
-![Frontend Developer React, Next js   Node js  Passionate about building scalable and modern web apps](https://github.com/user-attachments/assets/3c54c3f1-ef83-4900-a86f-81210ccd3241)
+![1000005879](https://github.com/user-attachments/assets/09020504-0d76-4502-810e-76bfe377cfe9)
